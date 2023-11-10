@@ -1,2 +1,2 @@
-# therapy-st-louis-mo
-therapy st louis mo
+# Therapy ST louis Mo
+Therapy is a way to get help with a mental health problem or get extra support if you are going through a tough time. If you go to therapy, you'll have meetings with a therapist to talk and learn. Therapy is the act of caring for someone, or the method of caring. If you have a rare disease, your doctor's therapy will hopefully cure you. Therapy comes from the Greek θεραπεία, for "healing." If someone tells you she's "in therapy," she's probably talking about a psychological kind of healing. Psychotherapy is a collaborative treatment based on the relationship between an individual and a [therapy st louis mo](https://stlmentalhealth.com/). Grounded in dialogue, it provides a supportive environment that allows you to talk openly with someone who's objective, neutral, and nonjudgmental.
